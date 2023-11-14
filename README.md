@@ -1,1 +1,1 @@
-# alokray.github.io
+# alokray.com
